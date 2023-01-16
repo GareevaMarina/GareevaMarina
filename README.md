@@ -29,4 +29,8 @@ https://t.me/GareevaMV
 
 Сертификат доступен по ссылке https://stepik.org/cert/1764358
 
+![2023-01-16_17-04-59](https://user-images.githubusercontent.com/104904113/212702500-b9e1b787-86a4-43f5-bcb1-00eaf4cf7b9d.png)
+
+Сертификат доступен по ссылке https://stepik.org/cert/1862021
+
 
